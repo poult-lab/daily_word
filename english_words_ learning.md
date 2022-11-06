@@ -26499,3 +26499,12 @@ A memento also serves as a reminder but it has more personal touch typically a g
 
 [adj] seamless access. "without a seam"
 
+#### 11/04
+
+01.from "*collapse*"
+
+
+01.collapse  [kəˈlæps] 
+[noun] The roof collapsed under the weight of snow. "to fall down or fall in suddenly, often after breaking apart"
+
+
